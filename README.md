@@ -1,0 +1,4 @@
+- sobre mim  
+- 👋 Oi. eu sou Gabrielly
+- 👀 estou interessado em aprender a a mexer em computadro, celular, notbook, ect... 
+- 🌱 estou aprendendo a a configura.
